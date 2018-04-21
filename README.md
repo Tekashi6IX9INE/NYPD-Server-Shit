@@ -1,2 +1,2 @@
 # NYPD-Server-Shit
-For NYPD RP Server
+DRAG AND DROP EASY AS DAT MATE
